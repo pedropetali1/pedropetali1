@@ -28,6 +28,7 @@
 
 - [LinkedIn](https://www.linkedin.com/in/pedro-petali/)
 - [GitHub](https://github.com/pedropetali1)
+- [Instagram](https://www.instagram.com/pedrotpetali/)
 
 ## 📧 Contato
 Para entrar em contato, envie um e-mail para: **pedrolucastpetali@hotmail.com**
